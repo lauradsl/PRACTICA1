@@ -1,2 +1,2 @@
 # PRACTICA1
-Examen
+Laura Salamanca Lotero
